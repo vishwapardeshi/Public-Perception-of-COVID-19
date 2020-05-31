@@ -1,1 +1,1 @@
-# Public-Perception-of-COVID-19
+# Public Perception of COVID-19 Social Distancing Policies
